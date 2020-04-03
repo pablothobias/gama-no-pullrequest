@@ -19,5 +19,5 @@
 
 O que estpu achando do curso?
 
-Apesar de já saber e utilizar o conteúdo das aulas no dia a dia, até o momento, estou curtindo muito e absorvendo sempre novos detalhes. Expectativas no céu!
+Apesar de já saber e utilizar o conteúdo das aulas no dia a dia, até o momento, estou curtindo muito e absorvendo sempre novos detalhes. Expectativas no céu!!
 
